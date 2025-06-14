@@ -36,4 +36,17 @@ Kahani AI is split into **two main parts**:
 Let your imagination run wild. Tell your story with Kahani AI.
 
 
+![image](https://github.com/user-attachments/assets/1f856462-d081-4265-917b-c165f11510cc)
+
+![image](https://github.com/user-attachments/assets/8f4ef8eb-0771-4bbe-bf31-209240c8a17e)
+
+![Screenshot_20250614-200345~2](https://github.com/user-attachments/assets/8f888289-64da-4838-8f83-fc23c384a913)
+
+![Screenshot_20250614-200223~2](https://github.com/user-attachments/assets/a59be5d4-7093-4645-9c93-d1bd6b8c4da8)
+
+
+
+
+
+
 
